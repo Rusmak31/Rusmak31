@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rusmak31
-- 👀 I’m interested in  обучение в rs sckool
+- 👀 I’m interested in  обучение в rs 
 - 🌱 I’m currently  только начал  учиться 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
